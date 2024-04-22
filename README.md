@@ -9,6 +9,6 @@ Meu nome Valdemar Furtado Junior
 
 ### Você pode entrar em contato comigo 📬
 
-valdemarfurtadojrhotmail.com
+valdemarfurtadojr@hotmail.com
 
 valdemar.furtado.junior@escola.pr.gov.br
