@@ -2,7 +2,7 @@
 
 Meu nome Valdemar Furtado Junior
 
-- Trabalhando na Alura 
+- Trabalhando na [Alura] (www.alura.com.br)
 - Trabalhando no Scratch
 - Trabalhando no desenvolvimento linguagem JavaScript
 - Softwares tem como finalidade condicionar os projetos desenvolvidos e organizar
