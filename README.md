@@ -13,6 +13,7 @@ valdemarfurtadojr@hotmail.com
 
 valdemar.furtado.junior@escola.pr.gov.br
 
-!{}(https://media1.tenor.com/m/gwNdB1DYFncAAAAC/fist-fight-fist-fight-film.gif)
+!{}(![image](https://github.com/ValdemarFurtado/Valdemar-Furtado/assets/167814708/3aa61ed8-8164-468c-a9e3-90ea68b01908))
+
 
 
