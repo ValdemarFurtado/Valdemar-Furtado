@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil💙
 
-Meu nome Valdemar Furtado Junior
+**Meu nome Valdemar Furtado Junior**
 
 - Trabalhando na [Alura] (www.alura.com.br)
 - Trabalhando no Scratch
